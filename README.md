@@ -12,18 +12,27 @@ PRICE::
 
 55$
 
-200+ Profiles
-All Futur Profiles
-All GOLD Making Profiles
-Future QuestBot Profiles
-Future Herb / Mine Profiles
++200+ Profiles
+
++All Futur Profiles
+
+_+All GOLD Making Profiles
+
++Future QuestBot Profiles
+
++Future Herb / Mine Profiles
 
 
 75$
-200+ Profiles
-(Eveerything 55$ Offers)
+
++200+ Profiles
+
++(Eveerything 55$ Offers)
+
 + Custom Classes by Me
++ 
 + Gold Making Methods (1000g + a Day)
++ 
 
 SKYPE = Froztmage
 SKYPE = Froztmage
