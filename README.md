@@ -11,28 +11,21 @@ Guide on How to Avoid Bans
 PRICE::
 
 55$
-
+--
 +200+ Profiles
-
 +All Futur Profiles
-
-_+All GOLD Making Profiles
-
++All GOLD Making Profiles
 +Future QuestBot Profiles
-
 +Future Herb / Mine Profiles
 
 
 75$
-
+--
 +200+ Profiles
-
 +(Eveerything 55$ Offers)
-
 + Custom Classes by Me
-+ 
 + Gold Making Methods (1000g + a Day)
-+ 
+
 
 SKYPE = Froztmage
 SKYPE = Froztmage
